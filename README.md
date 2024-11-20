@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @oguustavo
+- GOSTO DE ESTUDAR
 
 
 <!---
